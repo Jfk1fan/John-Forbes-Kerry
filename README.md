@@ -100,6 +100,9 @@ John Forbes Kerry mentioned 👀👀
 <img width="150" height="20" alt="1000057910" src="https://github.com/user-attachments/assets/78b04c70-04ef-4541-9ab6-8e73a236538d" />
 <img width="100" height="100" alt="1000057914" src="https://github.com/user-attachments/assets/39627e71-c21a-4848-9e68-4d6fdb44ec54" />
 <img width="640" height="480" alt="1000057929" src="https://github.com/user-attachments/assets/0e8fcf6a-dd10-49cc-8265-8fc06c92b961" />
+<img width="88" height="31" alt="1000063843" src="https://github.com/user-attachments/assets/c4b1f44d-b23e-4c9f-ad39-2c99fe036050" />
+<img width="88" height="31" alt="1000063924" src="https://github.com/user-attachments/assets/e74fe75d-80e8-4e95-a29e-91ddd3b221b8" />
+<img width="88" height="31" alt="1000063923" src="https://github.com/user-attachments/assets/f9907e7d-0f97-4b14-b5ec-2759df102fe6" />
 
 
 # yaoi alert
