@@ -73,6 +73,18 @@ John Forbes Kerry mentioned 👀👀
 <img width="300" height="213" alt="1000057954" src="https://github.com/user-attachments/assets/c0044867-7a32-4078-81a8-af9a8ef413ab" />
 <img width="1200" height="675" alt="1000057952" src="https://github.com/user-attachments/assets/9a030c00-262f-4c19-a40e-35adb0ee15f1" />
 <img width="788" height="602" alt="1000057953" src="https://github.com/user-attachments/assets/ae115fd4-6a2a-4e1b-b457-4974ece74f72" />
+<img width="710" height="710" alt="1000063548" src="https://github.com/user-attachments/assets/128c5283-3735-4a67-b4ce-906257aaa129" />
+<img width="710" height="710" alt="1000063549" src="https://github.com/user-attachments/assets/2a96bd3b-7d60-4a2f-ba4a-b20178266b9a" />
+<img width="710" height="710" alt="1000063550" src="https://github.com/user-attachments/assets/050330e0-b71a-4601-bdac-ff136b2d4485" />
+<img width="710" height="710" alt="1000063551" src="https://github.com/user-attachments/assets/8f738733-a385-4cee-8cad-b7851c5b33a7" />
+<img width="710" height="710" alt="1000063552" src="https://github.com/user-attachments/assets/52b7770b-2f0f-4f44-910e-ad8564e565b4" />
+<img width="710" height="759" alt="1000063553" src="https://github.com/user-attachments/assets/a21e6c79-1018-4bd9-824b-bb3c34cdc2ba" />
+<img width="710" height="710" alt="1000063554" src="https://github.com/user-attachments/assets/afbc1009-110e-40f0-a095-e3a1804459df" />
+<img width="710" height="710" alt="1000063556" src="https://github.com/user-attachments/assets/b1a87ec5-865b-4de7-b0e1-b41ef0c7ea88" />
+<img width="710" height="710" alt="1000063557" src="https://github.com/user-attachments/assets/41dda226-aec5-4182-b18d-17bef1ff71e0" />
+<img width="710" height="526" alt="1000063558" src="https://github.com/user-attachments/assets/f8f03257-f5b2-4316-8005-be45f475775f" />
+<img width="1280" height="720" alt="1000063958" src="https://github.com/user-attachments/assets/6a891058-2239-4f53-a1cc-6f5b3d6e41f3" />
+<img width="586" height="612" alt="1000063959" src="https://github.com/user-attachments/assets/2898bb1f-b144-44cd-8877-a3f2522612cd" />
 
 
 # moving thingys that mentions kerry
